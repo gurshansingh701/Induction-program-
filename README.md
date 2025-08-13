@@ -16,6 +16,10 @@ All students reached the gurdwara Sahib. Kirtan was sung at the Gurdwara Sahib a
 🧠 Motivational Talk An energetic speaker conducted a session on how to make the most of college life, stay focused, and manage time well.
 
 👥 Interaction with Seniors We got a chance to meet our seniors and clarify doubts regarding academics, fests, and placements. Their advice felt really valuable.
-# Proficiency yests
+## Proficiency tests :-
 ### An English Proficiency Test was conducted for all newly admitted students. This test aimed to assess students' basic language skills and comprehension. It also helped the faculty understand the students’ communication abilities and areas of improvement.
 Following the English test, a Mathematics Proficiency Test was held. The objective was to evaluate the students' understanding of core mathematical concepts. This assessment will help identify gaps and provide support in academic foundations.
+# Day3
+(4 Aug,2025)
+## UHV
+
