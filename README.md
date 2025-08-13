@@ -10,4 +10,9 @@
 ### we all reached near the auditorium and take our welcome kits.
  # Day2 
  (1 Aug, 2025)
- ### 
+ ## Career Guidance 
+ ### Professionals from reputed institutions interacted with us about future opportunities in engineering and beyond. They also spoke about skill-building.
+
+🧠 Motivational Talk An energetic speaker conducted a session on how to make the most of college life, stay focused, and manage time well.
+
+👥 Interaction with Seniors We got a chance to meet our seniors and clarify doubts regarding academics, fests, and placements. Their advice felt really valuable.
