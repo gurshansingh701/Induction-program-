@@ -21,5 +21,7 @@ All students reached the gurdwara Sahib. Kirtan was sung at the Gurdwara Sahib a
 Following the English test, a Mathematics Proficiency Test was held. The objective was to evaluate the students' understanding of core mathematical concepts. This assessment will help identify gaps and provide support in academic foundations.
 # Day3
 (4 Aug,2025)
-## UHV
+### The day began with a session by Dr. Jaswinder Singh (Incharge, IAPT). Initially, it focused on Science and Mathematics, but soon it transformed into a very engaging and spiritual discussion. Dr. Singh shared inspiring stories about Guru Nanak Dev Ji, which I enjoyed greatly.
+
+He emphasized that science is about knowing, but true learning goes beyond studying. "Don’t just study, learn"—this was his key message. We must learn deeply, because real understanding matters more than rote memorization. The session included various science-related activities and even a short meditation, which made it unique. It was less about materialistic or external matters and more about understanding ourselves at a deeper, eternal level. 
 
