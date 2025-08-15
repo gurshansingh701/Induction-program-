@@ -35,3 +35,13 @@ Informed students about the requirement to submit their Induction Program Report
 
 He emphasized that science is about knowing, but true learning goes beyond studying. "Don’t just study, learn"—this was his key message. We must learn deeply, because real understanding matters more than rote memorization. The session included various science-related activities and even a short meditation, which made it unique. It was less about materialistic or external matters and more about understanding ourselves at a deeper, eternal level. 
 
+# Day 4
+(5 Aig, 2025)
+### Classes tarted in the afternoon at 1:30 PM. Our first lecture was with the Motor Sports Club, led by Mr. Gautam Murria. We had a fun and engaging discussion about Formula 1, motorsports, and the club’s activities.
+
+Next, Dr. Amit Kamra introduced us to the Digital Marketing Club, explaining its vision and the kind of work they do. The final session of the day was with Mrs. Shaffy Makkar, who spoke about millets as a superfood. She introduced us to different varieties of millets, many of which I had never heard of, and shared tips on how to prepare them.
+
+This day stood out because we learned things that not only fuel our knowledge but also promote health and well-being.
+
+
+
