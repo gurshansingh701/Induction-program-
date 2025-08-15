@@ -1,6 +1,7 @@
 # 📖 INDUCTION PROGRAM 
 
-## Gurshan singh , branch - electrical engineering 
+# Gurshan singh 
+## Branch - electrical engineering 
 # Day1 
 (30 july,2025)
 
