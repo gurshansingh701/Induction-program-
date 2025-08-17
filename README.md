@@ -91,3 +91,6 @@ Vand Chhako (Share with others)
 He emphasized:
 
 "ਵਿਦਿਆ ਮਨੁੱਖ ਦਾ ਤੀਸਰਾ ਨੇਤਰ ਹੈ।"
+
+Later, Sr. Gurcharan Singh Grewal (Trustee of Nankana Sahib Education Trust) interacted with students, sharing his journey and assuring them of faculty support. 
+Dr. Lakhver Singh Khana (Incharge – CML) also spoke about the Centre of Multi-Faceted Learning and NPTEL courses, explaining how these could benefit students’ careers.
