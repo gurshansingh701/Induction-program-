@@ -75,4 +75,19 @@ The day ended with this informative session, and we left the classroom feeling m
 
 # Day 6
 (7 Aug,2025)
+Session by Prof.Jaswant Singh - General Talk and Personality Development
+We had a session that was based on general talk and personality development. The major points from the session were:
 
+Talked about Protocols in college life and in coding language.
+Address on building logic to firm up our problem-solving style.
+The full form of ChatGPT is Chat Generative Pre-Trained Transformer.
+Special Guest Session
+We were addressed by the *Trustee of the College, *S. Gurcharan Singh Grewal.
+
+✨ He shared the teachings of Guru Nanak Dev Ji:
+Kirat Karo (Earn honestly through hard work)
+Naam Japo (Chant the name of God)
+Vand Chhako (Share with others)
+He emphasized:
+
+"ਵਿਦਿਆ ਮਨੁੱਖ ਦਾ ਤੀਸਰਾ ਨੇਤਰ ਹੈ।"
