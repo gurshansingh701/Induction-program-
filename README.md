@@ -51,5 +51,19 @@ Importance of empathy, respect, and harmony
 Developing a positive mindset and responsible behavior
 Reflecting on moral and ethical values in personal and social contexts
 This session encouraged self-reflection and personal growth, aligning values with our actions.
+# Day 5
+### The fifth day of the induction program at GNDEC was yet another meaningful and knowledge-filled experience.
+
+
+The first lecture of the day was "Mathematics", conducted by Prof. Sandeep Kaur. She had a bold and confident voice that immediately grabbed everyone’s attention. She began by introducing herself and then delivered a beautiful and clear lecture on Differential Equations. We learned what differential equations are, along with the concepts of"Order and Degree". She also solved some example questions, which helped us understand the topic better.
+
+
+The second lecture was a "Programming for Problem Solving (PPS)" session, specifically focusing on "C++". It was conducted by our seniors, who gave us a beginner-friendly introduction to C++ and programming logic. Their examples and explanations were easy to follow, and they encouraged us to practice regularly.
+
+
+The third and final lecture of the day was "BEEE (Basic Electrical and Electronics Engineering)" by Prof. Sukhpal Singh from the Electrical Engineering department. He explained the syllabus, marking scheme, and shared tips on how to score well in the subject. He also asked some basic questions related to electricity and circuits to check our understanding and make the class interactive.
+
+
+The day ended with this informative session, and we left the classroom feeling more aware and motivated. Every session today helped us take one more step towards being better students and responsible engineers.
 
 
