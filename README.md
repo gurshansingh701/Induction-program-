@@ -62,7 +62,13 @@ The second lecture was a "Programming for Problem Solving (PPS)" session, specif
 
 
 The third and final lecture of the day was "BEEE (Basic Electrical and Electronics Engineering)" by Prof. Sukhpal Singh from the Electrical Engineering department. He explained the syllabus, marking scheme, and shared tips on how to score well in the subject. He also asked some basic questions related to electricity and circuits to check our understanding and make the class interactive.
+Today was a day of both revision and new learning. We began with a physics lecture by Prof. Jaspreet Singh, where we reviewed derivatives and explored scalar and vector fields.
 
+Next, in mathematics class with Prof. Sandeep Kaur Gill, we refreshed our knowledge of calculus, matrices, and related concepts.
+
+Afterwards, we moved to the auditorium for a lively session with Dr. Lakhvir Singh Khana. He introduced us to useful platforms like SWAYAM and NPTEL, helped us create our accounts, and shared his vision for his club.
+
+Later, Dr. Jasvir Singh Grewal, in-charge of NSS, held a session that began with Shabad Kirtan by senior NSS members. We watched an impactful video about the dangers of plastic waste to birds, took part in a lighthearted activity to make each other laugh, and ended with a stand-up comedy act by NSS students.
 
 The day ended with this informative session, and we left the classroom feeling more aware and motivated. Every session today helped us take one more step towards being better students and responsible engineers.
 
