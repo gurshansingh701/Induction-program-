@@ -42,6 +42,13 @@ He emphasized that science is about knowing, but true learning goes beyond study
 Next, Dr. Amit Kamra introduced us to the Digital Marketing Club, explaining its vision and the kind of work they do. The final session of the day was with Mrs. Shaffy Makkar, who spoke about millets as a superfood. She introduced us to different varieties of millets, many of which I had never heard of, and shared tips on how to prepare them.
 
 This day stood out because we learned things that not only fuel our knowledge but also promote health and well-being.
+🌱 Universal Human Values – (12.30-2.30)Part 2 by Dr. Priyadarshni
+After the break, we attended the second part of the Universal Human Values session, conducted by Ms. Priyadarshni.
+Key takeaways included:
 
+Importance of empathy, respect, and harmony
+Developing a positive mindset and responsible behavior
+Reflecting on moral and ethical values in personal and social contexts
+This session encouraged self-reflection and personal growth, aligning values with our actions.
 
 
