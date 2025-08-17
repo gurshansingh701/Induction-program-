@@ -94,3 +94,9 @@ He emphasized:
 
 Later, Sr. Gurcharan Singh Grewal (Trustee of Nankana Sahib Education Trust) interacted with students, sharing his journey and assuring them of faculty support. 
 Dr. Lakhver Singh Khana (Incharge – CML) also spoke about the Centre of Multi-Faceted Learning and NPTEL courses, explaining how these could benefit students’ careers.
+# Overall Experience💫
+### Looking back, the induction week was a mix of emotions. Some lectures were deeply engaging—especially Dr. Jaswinder Singh’s session—while others felt a bit long. There were moments of nervousness, but also excitement as I explored the campus with new friends.
+
+What stood out most was the culture of guidance here—faculty members and seniors were always approachable and supportive. I also admired how the college encourages regular worship and respect for all religions.
+
+By the end of the week, I felt more confident about starting this new journey. I hope that one day, I can stand on stage and inspire future batches just like our seniors inspired us. The induction not only helped me adapt to college life but also sparked curiosity to explore the countless opportunities GNDEC offers.
